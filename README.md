@@ -1,4 +1,4 @@
-- 👋 Hi, I’m melody/split
+- 👋 Hi, I’m melody/split/retro
 - 👀 I’m interested in roblox, warrior cats, minecraft
 - 🌱 I’m currently learning biology
 - 📫 How to reach me insta:hopepawz twitter:hopepawz email:hopepawz@gmail.com
